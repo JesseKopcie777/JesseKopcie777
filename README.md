@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @JesseKopcie777
 - 👀 I’m interested in ...Mathematics/COmputer IT>
 - 🌱 I’m currently learning ...GitHub programming/languaging.
-- 💞️ I’m looking to collaborate on ...help with my relationship with Anya Rhea.
+- 💞️ I’m looking to collaborate on ...help with my relationship with River Tesla.
 - 📫 How to reach me ...734 1490 412 areacode
 
 <!---
